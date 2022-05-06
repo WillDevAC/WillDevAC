@@ -1,4 +1,4 @@
-## Hi, I am WILL SILVA  👨‍💻
+## Hi, I am WILL SILVA 👋
 <span>How about we have a cup of coffee? ☕</span>
 <br>
 <br>
